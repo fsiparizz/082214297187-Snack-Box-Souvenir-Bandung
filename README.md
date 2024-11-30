@@ -11,4 +11,4 @@ jika anda tertarik hubungi no di bawah ini
 
 082214297187
 
-http://simp.ly/p/bw7bvG
+https://www.locanto.co.id/bandung/ID_7101079446/082214297187-Snack-Box-mantap-Bandung.html&myads
